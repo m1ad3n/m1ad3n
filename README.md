@@ -9,4 +9,3 @@
 - 🌍 I'm mostly active during the night
 - 🌱 Learning all about **Open Source**
 - 📫 Reach me: [instagram.com/s.mlaaden_](https://www.instagram.com/s.mlaaden_/)
-- ⚡️ Fun fact: I'm a huge fan of Harry Potter
