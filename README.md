@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-#### I'm a 17 y.o Student.
+#### I'm a 18 y.o Student.
 
 ##### BIO
 
