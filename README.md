@@ -8,4 +8,4 @@
 - ⚙️ I use daily: `.c`, `.cpp`, `.html`, `.css`, `.py`
 - 🌍 I'm mostly active during the night
 - 🌱 Learning all about **Open Source**
-- 📫 Reach me: [instagram.com/s.mladeen](https://www.instagram.com/s.mladeen/)
+- 📫 Reach me: [instagram.com/stanimiroviccmladen](https://www.instagram.com/stanimiroviccmladen)
